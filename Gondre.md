@@ -1,0 +1,4 @@
+Makovitz's Religious Hub, known for being the birthplace of many of the world's religions. Ones like the [[Tuvish Doctrine]], [[Xanucism]] and [[Lystrasism]]. Past that, it is a world of moderate technological advancement, thanks to the sprawling [[Glom|City of Glom]] and its enterprising villages, who have endeavored to use science to replicate the magics of the world. Juxtaposed to Glom, is [[Mongulf|The Mongulfi Theocracy]], a country near opposed to the scientific and arcane advancements of the continent preferring a more simple lifestyle as is in accordance with the Tuvish Doctrine's teachings.
+
+Besides the political machinations at hand, there lies [[Ehold|deserts filled with dangerous and aggressive creatures]] and [[Tsetgalia|forests willing to fight back at the transgressions of mortals]].
+
